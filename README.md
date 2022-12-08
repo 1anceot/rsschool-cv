@@ -1,1 +1,1 @@
-# rsschool-cv
+https://1anceot.io/rsschool-cv/cv
